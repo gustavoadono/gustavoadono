@@ -1,5 +1,5 @@
-> “Think lightly of yourself and deeply of the world.”
-― Miyamoto Musashi
+> “Next time is next time. Now is now”
+― Perfect Days (2023, Directed by Hirokazu Kore-eda)
 ```
                                                           .s.s.
                                                        , `'`Y8bso.
