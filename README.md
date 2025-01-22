@@ -1,5 +1,5 @@
 > “明日は明日の風が吹く”
-― Tomorrow's wind will blow tomorrow.
+― The winds of tomorrow will blow tomorrow.
 ```
                                                         .s.s.
                                                      , `'`Y8bso.
