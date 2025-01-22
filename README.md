@@ -1,5 +1,5 @@
-> “Next time is next time. Now is now”
-― Perfect Days (2023, Directed by Hirokazu Kore-eda)
+> “明日は明日の風が吹く (あしたはあしたのかぜがふく”
+― Tomorrow, tomorrow’s wind will blow.
 ```
                                                         .s.s.
                                                      , `'`Y8bso.
