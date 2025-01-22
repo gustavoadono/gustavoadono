@@ -1,5 +1,5 @@
-> “明日は明日の風が吹く (あしたはあしたのかぜがふく”
-― Tomorrow, tomorrow’s wind will blow.
+> “明日は明日の風が吹く”
+― Tomorrow's wind will blow tomorrow.
 ```
                                                         .s.s.
                                                      , `'`Y8bso.
